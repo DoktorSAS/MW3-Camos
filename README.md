@@ -9,3 +9,15 @@ Author: DoktorSAS
 
 # Digital Light Blue Camo
 ![Digital Light Blue Camo](https://cdn.discordapp.com/attachments/703287371608621127/703290921231319120/unknown.png)
+
+# Gold Rain
+![Gold Rain](https://media.discordapp.net/attachments/703287371608621127/703376799786336396/unknown.png)
+
+# Digital Light Blue Camo
+![Digital Light Blue Camo](https://cdn.discordapp.com/attachments/703287371608621127/703290921231319120/unknown.png)
+
+# Digital Light Blue Camo
+![Digital Light Blue Camo](https://cdn.discordapp.com/attachments/703287371608621127/703290921231319120/unknown.png)
+
+# Digital Light Blue Camo
+![Digital Light Blue Camo](https://cdn.discordapp.com/attachments/703287371608621127/703290921231319120/unknown.png)
